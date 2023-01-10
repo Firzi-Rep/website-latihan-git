@@ -1,1 +1,1 @@
-website yang mmasih dalam pengembangan oleh 4 calon developer hebat di masa depan nanti
+website yang masih dalam pengembangan oleh 4 calon developer hebat di masa depan nanti
